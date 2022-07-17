@@ -1,6 +1,5 @@
-PLS DONUT USE. VERY DANJER!!!!
-
 # Welcome to PCFucker!
+## WARNING! THIS IS DANGEROUS TO USE!!! DON'T USE THIS ON YOUR MAIN PC. DON'T TOUCH THIS SOFTWARE IF YOU AREN'T 100% SURE WHAT YOU'RE DOING.
 
 This is an epic software is. The folders that say "Safe" will fix itself when the pc restarts. The "Dangerous" folder has stuff that could break your pc. Usually they can be removed easilly if you know about computers. Some files need admin to fuck your pc. Most of these works on windows 7-11.
 
