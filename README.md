@@ -1,3 +1,5 @@
+PLS DONUT USE. VERY DANJER!!!!
+
 # Welcome to PCFucker!
 
 This is an epic software is. The folders that say "Safe" will fix itself when the pc restarts. The "Dangerous" folder has stuff that could break your pc. Usually they can be removed easilly if you know about computers. Some files need admin to fuck your pc. Most of these works on windows 7-11.
